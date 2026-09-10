@@ -1,2 +1,2 @@
-# prueba---practica---L-gica---Justin--Ogonaga
-Betancurt realizara la metodología 
+Grupo Nº8
+Integrantes
